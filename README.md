@@ -1,1 +1,1 @@
-[CV]([https://github.com/jiieunshin/jiieunshin/blob/main/Shin_Jieun_CV.pdf](https://jiieunshin.notion.site/CV-f0ddd6ac954f427692459d263ba51681?pvs=4)https://jiieunshin.notion.site/CV-f0ddd6ac954f427692459d263ba51681?pvs=4)
+[CV](https://jiieunshin.notion.site/CV-f0ddd6ac954f427692459d263ba51681?pvs=4)
