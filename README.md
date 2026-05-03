@@ -3,4 +3,5 @@ I studied **statistical learning** with a focus on variable selection at the Uni
 
 ### Contact
 If you are interested in joining my research team, please contact me at the email address below.
+
 jieunstat@gmail.com
